@@ -1,1 +1,0 @@
-# sist-techno-VD-3
